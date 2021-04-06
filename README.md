@@ -1,0 +1,6 @@
+# BOOTSTRAP-tindog-incomplete
+
+
+STAY TUNED 
+
+FOR THE PROJECT COMPLETION
